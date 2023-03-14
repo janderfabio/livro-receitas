@@ -39,7 +39,7 @@
 5. Quando o feijão estiver começando a amolecer, coloque as carnes, a lingüiça e o paio e deixe ferver em fogo brando até estar tudo bem cozido (leva algum tempo: de 2 a 3 horas).
 6. Esquente o óleo ou banha de porco e refogue os temperos.
 7. Coloque uma concha do feijão, amasse bem e deixe ferver despeje na feijoada e deixe ferver por mais 30 minutos.
-8. Sirva bem quente acompanhado de couve picada fina e refogada, farinha de mandioca crua, gomos de laranja e uma cerveja bem gelada.
+8. Sirva bem quente acompanhado de couve picada fina e refogada, farinha de mandioca crua, gomos de laranja e uma cerveja bem gelada e bom molho de pimenta.
 
 
 
